@@ -77,7 +77,7 @@ It allows you to switch between **dark and light modes** for a more appealing an
 | **Gowtham CP** | [@Gowtham](https://www.linkedin.com/in/surya-prakash-4704aa213) |
 | **Keathareswar TM** | [@Keith](https://www.linkedin.com/in/keathareswar-t-m-604803211) |
 | **Riyaash K** | [@Riyaash](https://www.linkedin.com/in/riyaash-k-287717201) |
-| **Vishalakshi SM** | [@Visha](https://www.linkedin.com/in/visalakshi-sm-78250a1bb) |
+| **Visalakshi SM** | [@Visa](https://www.linkedin.com/in/visalakshi-sm-78250a1bb) |
 | **SuryaPrakash S** | [@TidingsSP](https://www.linkedin.com/in/surya-prakash-4704aa213) |
 
 
